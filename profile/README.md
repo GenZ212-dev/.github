@@ -1,2 +1,2 @@
-# ✊ #GENZ212 fga3 social media ytspamma
+# ✊ #GENZ212
 https://discord.gg/genz212
